@@ -212,4 +212,4 @@ OOo4Kids is offered as a full free version with all features and updates include
 Ready to empower your children with essential skills? **Download OOo4Kids now and let the learning begin!**
 
 ---
-**Last updated:** 2026-10-06 00:41:55 UTC
+**Last updated:** 2026-10-06 07:24:19 UTC
